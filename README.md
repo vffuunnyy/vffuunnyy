@@ -1,1 +1,1 @@
-![image](https://github.com/vffuunnyy/vffuunnyy/blob/main/main.gif?raw=true)
+![image](https://imgur.com/pxGWN1G)
